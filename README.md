@@ -1,0 +1,1 @@
+# 8-sinif-dkab-soru-bankasi-2022-32
